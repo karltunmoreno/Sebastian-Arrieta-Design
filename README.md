@@ -1,2 +1,2 @@
 # Sebastian-Arrieta-Design
-Industrial Design Portfolio
+Industrial Design Portfolio (Client Work)
