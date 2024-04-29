@@ -1,6 +1,6 @@
 # Sebastian-Arrieta-Design
 Industrial Design Portfolio (Client Work)
-PENDING IN CONSTRUCTION
+PENDING IN CONSTRUCTION........THIS SITE IS UNDER CONSTRUCTION.
 
 visit site
 https://karltunmoreno.github.io/Sebastian-Arrieta-Design/
